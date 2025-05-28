@@ -1,1 +1,1 @@
-https://prawienocski.io/Anwi
+https://prawienocski.github.io/Anwi/
